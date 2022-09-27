@@ -1,7 +1,7 @@
 ![Image text](https://cdn.myanimelist.net/images/characters/15/323914.jpg)
-__
+________________________________
 ***Daniel Cardenas Vicent***
-__
+_______________________________
 *Establiments*
-__
+______________________________
 **Aula Balear**
